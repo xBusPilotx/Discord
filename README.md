@@ -1,1 +1,1 @@
-Der Server ist tuhl.
+Ich mag FreePvP.de
