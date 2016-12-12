@@ -1,1 +1,1 @@
-Der Server ist tuhl c:
+Der Server ist tuhl.
