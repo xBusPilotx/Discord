@@ -1,1 +1,1 @@
-# Discord
+Der Server ist tuhl c:
